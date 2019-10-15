@@ -2,4 +2,4 @@
 
 new to here.
 
-majors in instrumentation.
+man.majors in instrumentation.
